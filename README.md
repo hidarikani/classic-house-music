@@ -1,4 +1,4 @@
-# Classic House Lyrics
+# Classic House Music
 
 > [!WARNING]
 > Warning! The list is subjective.
