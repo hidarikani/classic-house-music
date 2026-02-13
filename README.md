@@ -24,7 +24,7 @@
 
 - [Discogs](https://www.discogs.com/release/230572-Marshall-Jefferson-And-On-The-House-Move-Your-Body-The-House-Music-Anthem)
 
-## Love Story (vs. Finally)
+## Love Story (vs. Finally) -  Layo & Bushwacka!
 
 - [Wikipedia](https://en.wikipedia.org/wiki/Love_Story_(vs._Finally))
 - [Spotify](https://open.spotify.com/track/5uiSORQVySTbbtuuJETfre?si=e22e959c9f9d486f)
