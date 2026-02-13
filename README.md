@@ -1,2 +1,4 @@
-# spotify-artist-cloud
-Word cloud generator that uses Spotify artists as input
+# Classic House Lyrics
+
+> [!WARNING]
+> Warning! The list is subjective.
