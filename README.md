@@ -26,5 +26,5 @@
 
 ## Love Story (vs. Finally)
 
-- [Wikipedia](https://en.wikipedia.org/wiki/Love_Story_(vs._Finally)
+- [Wikipedia](https://en.wikipedia.org/wiki/Love_Story_(vs._Finally))
 - [Spotify](https://open.spotify.com/track/5uiSORQVySTbbtuuJETfre?si=e22e959c9f9d486f)
