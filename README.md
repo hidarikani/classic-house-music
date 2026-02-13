@@ -29,3 +29,9 @@ TBD
 ### Remixes
 
 TBD
+
+## Marshall Jefferson - Move Your Body
+
+### Original
+
+- [Discogs](https://www.discogs.com/release/230572-Marshall-Jefferson-And-On-The-House-Move-Your-Body-The-House-Music-Anthem)
